@@ -1,5 +1,4 @@
-
-## Socials: [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/Deathexxsize) ![Описание GIF](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcTd3ZTloNnRpcjFzeHMzMDQ2MDZlYWR4djVlNG9icDZtdDJscnhjNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Basrh159dGwKY/giphy.gif)
+ ![Описание GIF](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcTd3ZTloNnRpcjFzeHMzMDQ2MDZlYWR4djVlNG9icDZtdDJscnhjNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Basrh159dGwKY/giphy.gif)
 
  
 
