@@ -1,4 +1,4 @@
- ![Описание GIF](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcTd3ZTloNnRpcjFzeHMzMDQ2MDZlYWR4djVlNG9icDZtdDJscnhjNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Basrh159dGwKY/giphy.gif)
+ ![Описание GIF](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExdjMxZ242bjk3MDVjMW8xY3NtZnkwdG9tcmh1MWE0YW1uNXNrMHAxcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1qZ7Ny4dYqhxwftGvG/giphy.gif)
 
  
 
